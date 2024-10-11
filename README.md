@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/wybh930](https://github.com/wybh930)
 
-- 📫 How to reach me **kooseyoung1@gmail.com**
+- 📫 How to reach me **kooseyoung1@naver.com**
 
 - ⚡ Fun fact **maybeeee...funny !!**
 
